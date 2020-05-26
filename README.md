@@ -1,2 +1,0 @@
-# Ohlala
-Ohlala Estudio
